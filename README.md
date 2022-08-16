@@ -1,0 +1,3 @@
+- 👋 oii, meu nome é heloysa gervasio, eu estou usando essa plataforma para os meus estudos
+- 👀 algumas coisas na qual eu gosto de  fazer : gosto de dormir bastante, assistir meus filmes favoritos,jogos online,conversar com a pessoa que eu gosto, e eu amo calopsita
+- 
